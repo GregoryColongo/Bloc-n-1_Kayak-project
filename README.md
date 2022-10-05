@@ -1,10 +1,3 @@
-{{gregcolongo@yahoo.fr}}
-
-{{https://share.vidyard.com/watch/YFyutgM27ozgzfq8d5yVj7?}}
-
-
-
-
 
 ![Kayak](https://seekvectorlogo.com/wp-content/uploads/2018/01/kayak-vector-logo.png)
 
